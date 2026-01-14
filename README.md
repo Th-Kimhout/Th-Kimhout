@@ -5,7 +5,7 @@
 ### 🚀 Projects & Focus Areas
 
 * 🌱 I’m currently diving deeper into **AI and LLM**.
-* 🔭 I’m currently working on a **Final Project of HRD Advanced Course**.
+* 🔭 I’m currently working as an **IT Instructor** at KSHRD Center.
 * 📬 How to reach me: You can shoot me an email at **th.kimhout@gmail.com**!
 * ⚡ Fun fact: **I'm fun and Outgoing**
 
